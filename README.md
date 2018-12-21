@@ -1,3 +1,3 @@
 # nktmerch.github.io
 
-Working on it, check back in a sec!
+What's up NYT! Still working on this, check back in a sec!
